@@ -1,2 +1,0 @@
-# HanjunKim.github.io
-Personal 
